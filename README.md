@@ -9,3 +9,5 @@ This test serves to prove who you are, and to provide us with insight into your 
 To start, you must locate a 4-digit number code. It will lead you to one of many gifts. Your main clue is:
 
 HARDEN YOUR HEARTS.
+
+https://forms.gle/22hqQ3JXQHxFmoHLA
