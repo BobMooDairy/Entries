@@ -12,4 +12,4 @@ HARDEN YOUR HEARTS.
 
 Verifications of Investment:<br>
 INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA<br>
-SECONDARY - https://forms.gle/vHP9rh5LHGbfyx5o7
+SECONDARY - https://forms.gle/ZxwLZnMWe4pJzY5L6
