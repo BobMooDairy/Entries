@@ -10,4 +10,6 @@ To start, you must locate a 4-digit number code. It will lead you to one of many
 
 HARDEN YOUR HEARTS.
 
-https://forms.gle/22hqQ3JXQHxFmoHLA
+Verifications of Investment:
+INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA
+SECONDARY - https://forms.gle/vHP9rh5LHGbfyx5o7
