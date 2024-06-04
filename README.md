@@ -11,5 +11,5 @@ To start, you must locate a 4-digit number code. It will lead you to one of many
 HARDEN YOUR HEARTS.
 
 Verifications of Investment:<br>
-INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA<br>
-SECONDARY - https://forms.gle/ZxwLZnMWe4pJzY5L6
+Step 1: INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA<br>
+Step 2: PUNISHMENT - https://forms.gle/ZxwLZnMWe4pJzY5L6
