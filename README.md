@@ -12,5 +12,5 @@ HARDEN YOUR HEARTS.
 
 Verifications of Investment:<br>
 Step 1: INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA<br>
-Step 2: DISCIPLINE - https://pastebin.com/LrA9sAtb
-Step 3: UNDERSTANDING - https://pastebin.com/DCZwEvRT 
+Step 2: DISCIPLINE - https://pastebin.com/LrA9sAtb<br>
+Step 3: UNDERSTANDING - https://pastebin.com/DCZwEvRT<br>
