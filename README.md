@@ -15,3 +15,4 @@ Step 1: INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA<br>
 Step 2: DISCIPLINE - https://pastebin.com/LrA9sAtb<br>
 Step 3: UNDERSTANDING - https://pastebin.com/DCZwEvRT<br>
 Step 4: SCRUTINY - https://pastebin.com/u7ksS2s6<br>
+Step 5: EXAMINATION - https://pastebin.com/7Q35psxk
