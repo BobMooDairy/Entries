@@ -13,7 +13,7 @@ To start, you must locate a 4-digit number code. It will lead you to one of many
 HARDEN YOUR HEARTS.
 
 Verifications of Investment:<br>
-Step 1: INITIAL - https://forms.gle/22hqQ3JXQHxFmoHLA<br>
+Step 1: INITIAL - https://drive.google.com/drive/folders/1C3NyyDVYEPAqE3FYJrEFl3W1r-0sv_gr?usp=sharing<br>
 Step 2: DISCIPLINE - https://pastebin.com/LrA9sAtb<br>
 Step 3: COMPASSION - https://pastebin.com/DCZwEvRT<br>
 Step 4: WISDOM - https://pastebin.com/u7ksS2s6<br>
