@@ -8,6 +8,8 @@ This test serves to prove who you are, and to provide us with insight into your 
 
 THINGS TO NOTE: We are not cruel, so when in doubt, consult the "stuck" webpage. There are two types of hints on this page: phrase hints(for broader puzzles, requiring typed phrases) and media-hints(for particular images or videos, indicated in the website's basement.). If you have tried all hint avenues and are still stuck, the option of emailing our intern is always available(bobmoodairyllc@gmail.com). Also note that if you need to modify or utilize anything as part of the test, it should be downloaded onto your device so as to preserve the integrity and security of the test. Don't worry, we can't do anything to you, and if you doubt us you can always scan the file with an antivirus. You do not need editing priveleges to do this. Also remember that what you see is often not all there is, you will have to look deeper.
 
+IF THERE IS AN ISSUE WITH OUR EXAMINATION, PLEASE EMAIL OUR INTERN at bobmoodairyllc@gmail.com. We will fix it as soon as possible.
+
 To start, you must locate a 4-digit number code. It will lead you to one of many gifts. Your initial clue is:
 
 HARDEN YOUR HEARTS.
