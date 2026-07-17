@@ -14,6 +14,8 @@ To start, you must locate a 4-digit number code. It will lead you to one of many
 
 HARDEN YOUR HEARTS.
 
+Do note that password-based inputs will often be finnicky. Try both ALL-CAPS, and lowercase before moving onto subsequent attemtps.
+
 Verifications of Investment:<br>
 Step 1: INITIAL - https://drive.google.com/drive/folders/1C3NyyDVYEPAqE3FYJrEFl3W1r-0sv_gr?usp=sharing<br>
 Step 2: DISCIPLINE - https://pastebin.com/LrA9sAtb<br>
